@@ -1,0 +1,2 @@
+# Spider-Nebula
+For   quality in their lives is their enthusiastic attention to the outer world of hands-on and real-life experiences.  are excited by continuous involvement in new activities and in the pursuit of new challenges.  tend to be logical and analytical in their approach to life, and they have an acute sense of how objects, events, and people in the world work.  are typically energetic and adaptable realists, who prefer to experience and accept life rather than to judge or organize it.
